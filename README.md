@@ -1,1 +1,0 @@
-# sistemcerdasg7nzbd
